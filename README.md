@@ -1,0 +1,2 @@
+# jwjsbjjgxskbkcglxt
+教务_教室_班级_教工_学生_课表_课程管理系统
